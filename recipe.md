@@ -1,0 +1,2 @@
+In a bowl, combine flour, sugar and baking powder. Add milk, butter and vanilla; mix well. Stir into dry ingredients just until combined. Beat egg whites until stiff peaks form; fold into batter.
+Bake in a preheated waffle iron according to manufacturer's directions until golden brown. Serve with strawberries or syrup.
